@@ -1,0 +1,1 @@
+Link do preview: https://www.figma.com/proto/7umaR7WtxgZV5XuwTpO0sY/Telas-Banco-Fintech?node-id=4-88&p=f&t=6xwdobnyNXBb6Q8c-1&scaling=scale-down&content-scaling=fixed&page-id=0%3A1&starting-point-node-id=4%3A88
